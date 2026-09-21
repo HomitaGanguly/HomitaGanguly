@@ -1,6 +1,6 @@
 Hi there :)
 
-Studying at Christ University,Pune, Lavasa 
+Studying at Gokhale Institute of Politics and Economics
 
 
 
